@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm just simple love coding
+
 
 
 ## 🌐 Socials:
